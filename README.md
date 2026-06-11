@@ -34,11 +34,5 @@ I'M SO EXCITED FOR YOU Y'ALL ILYSMMM
 
 
 <img width="735" height="704" alt="be9e1470084bfe643ac20d6b80985d02 (1)" src="https://github.com/user-attachments/assets/0cf28ecc-8bed-4993-ac28-59c6b8dbba49" />
-I love my twin and friends!!! 
-
-
-
-Name:Nadi/Elie
-age:15yo
-fav tadc:ribbit and caine
-to say about:ellooo guys you can cuddle w me if you want on tadc/me area! plsss follow me!! when you follow me if I can thank to you! thank you so much!! 
+I love my twin and friends 
+ellooo guys you can cuddle w me if you want on tadc/me area! plsss follow me!! when you follow me if I can thank to you! thank you so much!! 
