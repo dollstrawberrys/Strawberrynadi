@@ -33,6 +33,21 @@ MY FAV RIBBIT I LOVE HER SO MUCH
 I'M SO EXCITED FOR YOU Y'ALL ILYSMMM
 
 
+
+<img width="610" height="720" alt="IMG_20260612_181302" src="https://github.com/user-attachments/assets/629ba6a2-0024-40de-9a0a-34dd72c352d0" />
+
+
 <img width="735" height="704" alt="be9e1470084bfe643ac20d6b80985d02 (1)" src="https://github.com/user-attachments/assets/0cf28ecc-8bed-4993-ac28-59c6b8dbba49" />
+
+
+
+<img width="649" height="645" alt="b6d664581a3d14792427d949738a99c7" src="https://github.com/user-attachments/assets/f88576f0-2a55-4989-930e-677dee39128e" />
+SHE'S EVERYWHERE
+
+
+<img width="735" height="777" alt="9d093d697e2f2e581329124eae4b644c" src="https://github.com/user-attachments/assets/7c512c51-2118-46ef-9eea-678be5d723f0" />
+
+
+
 I love my twin and friends 
 ellooo guys you can cuddle w me if you want on tadc/me area! plsss follow me!! when you follow me if I can thank to you! thank you so much!! 
