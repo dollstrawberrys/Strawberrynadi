@@ -54,4 +54,9 @@ ellooo guys you can cuddle w me if you want on tadc/me area! plsss follow me!! w
 
 
 
+
 do not copy my skins ribbits. pls. but you copy my skin if I block u ^^
+
+
+
+<https://httpsribbitofthefrogloverstrawpage.straw.page/>
