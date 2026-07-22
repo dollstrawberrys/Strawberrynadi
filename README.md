@@ -18,7 +18,7 @@ pls dni/c/Id/unless my friends or twin!! :P
       $\color{#303030}{\textsf{ABOUT ME!}}$ <br>
       <br>
       $\color{#83eca8}{\textsf{♡ Ribbitㅤ♡}}$ <br>
-      $\color{#6cbl54}{\textsf{SHE/HER PRONOUNS :Pc}}$ <br>
+      $\color{#6cbl54}{\textsf{SHE/HER PRONOUNS :P}}$ <br>
       $\color{#83eca8}{\textsf{jax hater dni!!, Ribbit fan}}$ <br>
       $\color{#88e46a}{\textsf{Dniunless my twin or friends pls <3}}$ <br>
       <br>
@@ -57,7 +57,7 @@ pls dni/c/Id/unless my friends or twin!! :P
 
 - - -
 
-![dividerr :3](https://file.garden/amD6r8tnsiWQVfzU/1381f042147a10535486a177bd56cb6e.jpg) 
+![dividerr :3](https://file.garden/amD6r8tnsiWQVfzU/Untitled48.png) 
 
 </div>
 
