@@ -22,7 +22,7 @@ pls dni/c/Id/unless my friends or twin!! :P
       $\color{#83eca8}{\textsf{jax hater dni!!, Ribbit fan}}$ <br>
       $\color{#88e46a}{\textsf{Dniunless my twin or friends pls <3}}$ <br>
       <br>
-      $\color{#477ED0}{\textsf{⤥ CHECK OUT MY PAGES BELOW♡ ⤦}}$ <br>
+      $\color{#6cbl54}{\textsf{⤥ CHECK OUT MY PAGES BELOW♡ ⤦}}$ <br>
 
 </th>
 </tr>
@@ -57,7 +57,7 @@ pls dni/c/Id/unless my friends or twin!! :P
 
 - - -
 
-![dividerr :3](https://file.garden/1381f042147a10535486a177bd56cb6e.jpg)
+![dividerr :3](https://file.garden/amD6r8tnsiWQVfzU/1381f042147a10535486a177bd56cb6e.jpg) 
 
 </div>
 
