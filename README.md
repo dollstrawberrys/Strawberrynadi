@@ -23,7 +23,7 @@ pls dni/c/Id/unless my friends or twin!! :P
       $\color{#303030}{\textsf{ABOUT ME!}}$ <br>
       <br>
       $\color{#83eca8}{\textsf{♡ Ribbitㅤ♡}}$ <br>
-      $\color{#6cbl54}{\textsf{SHE/HER PRONOUNS :P}}$ <br>
+      $\color{#88e46a}{\textsf{SHE/HER PRONOUNS :P}}$ <br>
       $\color{#83eca8}{\textsf{jax hater dni!!, Ribbit fan}}$ <br>
       $\color{#88e46a}{\textsf{Dniunless my twin or friends pls <3}}$ <br>
       <br>
@@ -52,7 +52,7 @@ pls dni/c/Id/unless my friends or twin!! :P
       <br>
       $\color{#6cb154}{\textsf{CHECK OUT MY STRAWPAGE}}$ <br>
       $\color{#83eca8}{\textsf{FOR AN EXTENDED LIST AND}}$ <br>
-      $\color{#6cb154}{\textsf{⤥ MORE INFO ON YOURS TRULY!! ⤦}}$ <br>
+      $\color{#88e46a}{\textsf{⤥ MORE INFO ON YOURS TRULY!! ⤦}}$ <br>
 
 </th>
 </tr>
