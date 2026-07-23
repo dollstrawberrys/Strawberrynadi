@@ -8,8 +8,13 @@ pls dni/c/Id/unless my friends or twin!! :P
 
 <div align="center">
 
+- - -
 
-0
+<table>
+ <tr>
+   <th>
+<img width="736" height="736" alt="52e2ec1664b68f823b17a80a86d1fed2" src="https://github.com/user-attachments/assets/2d71da16-3082-402a-8fed-3bb71d41b8c3" />
+
 - - -
 
 <table>
