@@ -48,7 +48,7 @@ pls dni/c/Id/unless my friends or twin!! :P
       $\color{#83eca8}{\textsf{FROGDOLL, FUNNYGUMMY, RABBITRIBBIT, JESTERDOLL OR ALL.}}$ <br>
       $\color{#88e46a}{\textsf{BASIC DNI CRITERIA.}}$ <br>
       $\color{#6cb154}{\textsf{SHIP/SYSTEM DISCOURSE.}}$ <br>
-      $\color{#88e46a}{\textsf{Dnc my skin pls :).}}$ <br>
+      $\color{#88e46a}{\textsf{Dnc my skin pls and TYSM <3}}$ <br>
       <br>
       $\color{#6cb154}{\textsf{CHECK OUT MY STRAWPAGE}}$ <br>
       $\color{#83eca8}{\textsf{FOR AN EXTENDED LIST AND}}$ <br>
