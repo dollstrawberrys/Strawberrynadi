@@ -1,6 +1,6 @@
 <!--
 
-Ello yall!, dollstrawberrys :3
+Ello yall!, Nadiebow :3
 ilysm mwah thank you for follow me! 
 pls dni/c/Id/unless my friends or twin!! :P
 
